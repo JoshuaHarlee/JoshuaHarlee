@@ -29,7 +29,7 @@ My ultimate goal is to become a trusted cybersecurity professional capable of de
 
 ## 📫 Let's Connect
 
-- 💼 [LinkedIn]([https://www.linkedin.com/in/your-linkedin-here](https://www.linkedin.com/in/joshua-harlee-22a71b238/))
+- 💼 [LinkedIn](linkedin.com/in/joshua-harlee-22a71b238)
 - 📧 Email: JoshuaHarlee@outlook.com
 
 ---
